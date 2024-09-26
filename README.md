@@ -3,3 +3,5 @@
 #Never give up san
 #You are the choosen one
 #the choosen one need to forged by strong hammer not be riddicule by just a mere pain
+
+Yo you can san. It will never be like that
