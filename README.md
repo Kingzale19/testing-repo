@@ -11,3 +11,6 @@ Forgive everything and be happy for yourself
 OJUAHBFUHAEFOUHQWOUFHQEUO
 
 KEEEP MOVING FORWARD SAN
+Jangan Lembek
+Sedih bukan berarti lu harus diam dan gamau aktivitas
+Paksa diri oyyyyyyy
